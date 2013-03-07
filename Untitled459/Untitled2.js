@@ -1,1 +1,7 @@
-﻿
+azerlkzehar
+azerklmjhalkjzer
+azemrhjlmakzer
+amzerhjmaljzer
+amzerhmakljer
+amzlerhùmzeh
+azermkjhalmzekrhj
